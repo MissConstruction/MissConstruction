@@ -34,3 +34,5 @@ If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what 
  ![wjltyo](https://github.com/user-attachments/assets/4759c6b9-764e-4848-b469-9d02d84df2c0) 
 ![i0c7i1](https://github.com/user-attachments/assets/c5c56a9f-8f3d-4168-ab41-60c44b80ede1)
 
+![IMG_0634](https://github.com/user-attachments/assets/423b9150-ec5a-4185-a3a0-62ebedace629)
+If you ever wanna vent to be, i'll warn you because i'm a terrible comforter. I'll still try my best comforting you though ^_^
