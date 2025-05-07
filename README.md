@@ -60,3 +60,8 @@ ANY kind of motherless jokes. Seriously, those really hurt me and i'll instantly
 Zoophilles (ew.) 
 
 Ppl who make fun of SA or SH, neither of them are funny.
+
+![xv5l5o](https://github.com/user-attachments/assets/b72734c7-6c92-41b3-ab2d-e6732f23d14a)
+People who force their ships on people. 
+
+srsly DNI if you tell people to kts over ships. ( DW berryfunny, Christmasflower shippers yall are on thin ice.. i'm sorry but i've had terrible expriences with some of you) 
