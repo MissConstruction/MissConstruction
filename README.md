@@ -65,3 +65,7 @@ Ppl who make fun of SA or SH, neither of them are funny.
 People who force their ships on people. 
 
 srsly DNI if you tell people to kts over ships. ( DW berryfunny, Christmasflower shippers yall are on thin ice.. i'm sorry but i've had terrible expriences with some of you) 
+
+Ryker x Leon (8:11) shippers. Do i even have to explain? Ryker sees Leon as their father figure, not some kind of lover. Leon also sees Ryker as his own son/child
+
+Vittorino x Ryker (8:11 AGAIN) Sigh... victim x abuser. 
