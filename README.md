@@ -35,4 +35,4 @@ If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what 
 ![i0c7i1](https://github.com/user-attachments/assets/c5c56a9f-8f3d-4168-ab41-60c44b80ede1)
 
 ![IMG_0634](https://github.com/user-attachments/assets/423b9150-ec5a-4185-a3a0-62ebedace629)
-If you ever wanna vent to be, i'll warn you because i'm a terrible comforter. I'll still try my best comforting you though ^_^
+If you ever wanna vent to be, i'll warn you because i'm a terrible comforter. I'll still try my best comforting you though ^_^ Also, i'll honestly don't know how to comfort at all when it comes to family problems. (i haven't really exprienced any in my life, so i'll be really clueless on how to comfort by it, especially if it's father issues, i'm sorry （＞人＜；）
