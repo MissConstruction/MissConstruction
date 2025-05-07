@@ -164,24 +164,16 @@ Min-su
 
 Jun-ho
 
-Ji-Yeong
-
-Duck guy
-
 ![IMG-3871](https://github.com/user-attachments/assets/c6603b2c-b4f0-4d4c-8e70-de98de24ad6d)
 Subspace
 
 Daisuke
-
-Anya
 
 Pure Vanilla Cookie
 
 Cream Ferret Cookie
 
 Sal Fisher
-
-Larry Johnson
 
 Leon
 
@@ -216,3 +208,23 @@ I'm Romanian-South Korean !! (Hungarian too from my grandparents IDK)
 ![IMG_7579](https://github.com/user-attachments/assets/aab0f225-928a-4795-91dd-1f480bbf42cd)
 I love my friends ALOT lelele.. WHO doesn't????
 
+i act childish ALOT, i'll really try to stop if that bothers you!!
+
+![IMG-0743](https://github.com/user-attachments/assets/f080af96-ce03-4251-9fa3-90b7fe0b374d)
+i match my friends' energy! 
+
+Be careful with NSFW jokes around me, i can get uncomfy sometimess!!!
+
+I really care ALOT about you (if you're my friend) even if i don't show it (╯▽╰ )
+![IMG_9272](https://github.com/user-attachments/assets/4c72b438-0c15-4d93-8750-178d887f3889)
+
+I usually keep my problems to myself, it's hard for me to open up since i have trust issues, but if i trust you aot, i'll probably open up ^^
+
+I'm a really sensitive person, please do NOT make motherless jokes around me. It really triggers me :( 
+
+![IMG_1678](https://github.com/user-attachments/assets/75d47950-6d1d-4afe-a00e-d0be91933cdf)
+You can call me my irl names, idm!!
+
+Johanna / Ji-Yeong !
+
+THANK YOU FOR READING THIS WHOLE THING???? I REALLY APPRECIATE IT........ youre free to int w me anytime!! ^^
