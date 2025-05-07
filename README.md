@@ -11,3 +11,21 @@ Always C+H freely !! ^^
 INFJ-T
 
  ![cwrlo8](https://github.com/user-attachments/assets/6c42fadc-2b8b-43c4-92d0-99ebf2654815)
+
+ 
+![szoxht](https://github.com/user-attachments/assets/3b85cee9-5158-46c7-ac4c-cd7e525b1b75)  They / Them !!
+
+
+![zpjx9v](https://github.com/user-attachments/assets/0e3897ad-d2e7-418c-b720-0af9d6392da6) ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ ALWAYS feel free to interact with me or c+h w me (even if i'm on dni or anything like that, i LOVE cuds)
+╰┈➤ I also love talking alot, especially about my interests and ocs, LITTELARY, mention the game and i'm being a nerd about it. I ALSO LOVE LISTENING TO PPL TALK TO ME!!
+
+like hell yeah, i wanna know EVERYTHING you say!!
+
+I like reading, drawing, painting, watching movies (thriller, horror etc)  and crafting alot (sleeping too) !!![6folu8](https://github.com/user-attachments/assets/725a4902-e763-407d-8b17-6a469362b9df)
+
+![5g791n](https://github.com/user-attachments/assets/b1d72ca2-de5e-4a17-8f8a-ac93b70a5c87) I'm Pansexual and Nonbinary !!(｡･∀･)ﾉﾞ![vaxhez](https://github.com/user-attachments/assets/3f155d2d-e8d1-48c4-8d6b-78037e5a5764)
+
+
+i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Maned wolves, foxes, snakes, doves, rabbits, cats and dogs!! \(@^0^@)/
+
+
