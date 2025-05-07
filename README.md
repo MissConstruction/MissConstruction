@@ -77,4 +77,57 @@ Exes... (the ones who cheated on me, used me or any other stuff like that)
 Ex friends (same as exes, iwc in different cases)
 ![baclje](https://github.com/user-attachments/assets/d7a4773a-3570-4b18-82d5-4c50fb5cc323)
 
+Ppl who romantize/normalize stalking and obsessive behaivor.
+
+THOSE kind of Niragi (AIB) fans. You're disgusting if you only like him because of what he did to Usagi TWICE. Otherwise it's ok nws, i like how a well written bad person that burnt gecko is (NOT INCLUDING WHAT HE DID TO USAGI.) 
+
+⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆ Fandoms !! ![subspace-subspace-phighting](https://github.com/user-attachments/assets/b0b69bc7-d8e1-470f-8d03-be541efda26c) 
+
+Alice in borderland
+
+8:11
+
+Sally Face
+
+Tiny Bunny
+
+Beastars
+
+Rachel's games (Deadplate, Rot in paradise etc)
+
+Warrior cats
+
+Piggy
+
+Squid Game
+
+Wednesday
+
+Slendytubbies
+
+# PEOPLE IN THE FANDOMS ABOVE PLEASE INT. 
+
+Orison
+
+Phighting
+
+Forsaken
+
+Let him go
+
+TR:UD
+
+Threadville
+
+Fran Bow
+
+Brawl Stars
+
+Little Misfortune
+
+Dandy's World (FANDOM IWEC PLEASEEE) 
+
+
+
+
 
