@@ -131,6 +131,8 @@ Little Misfortune
 
 Dandy's World (FANDOM IWEC PLEASEEE) 
 
+Dream Game
+
 
 I'M IN ALOT MORE, I JUST FORGOT THE NAMES..... GULPSSS
 
@@ -200,5 +202,17 @@ Lazy to add the rest zzz
 
 ![IMG_2355](https://github.com/user-attachments/assets/2b93f6c3-d2bc-48bf-b8b8-71e2bd8f2c4c)
 
+♡₊˚ 🦢・₊✧ even MORE infos abt me 
 
+![IMG_9153](https://github.com/user-attachments/assets/a5376e3c-5626-42f0-9070-79cedbbdf5b6)
+I love listenng to music. lelelelelle Mitski, Mother Mother, Rammstein, Jack Stauber, Laufey, Miss Construction, MSI (ok.. i don't support Jimmy ew) , TV Girl, Tyler the creator, Alex G, Yaelokre, Maebi, Lady Gaga, Guerilla Toss, The living Tombstone, Kate Bush, Melanie Martinez
+
+![IMG-3552](https://github.com/user-attachments/assets/950f5df8-ee1e-4e98-9e5a-7066ddf07789)
+
+I speak 8 languages !!
+
+I'm Romanian-South Korean !! (Hungarian too from my grandparents IDK) 
+
+![IMG_7579](https://github.com/user-attachments/assets/aab0f225-928a-4795-91dd-1f480bbf42cd)
+I love my friends ALOT lelele.. WHO doesn't????
 
