@@ -69,3 +69,12 @@ srsly DNI if you tell people to kts over ships. ( DW berryfunny, Christmasflower
 Ryker x Leon (8:11) shippers. Do i even have to explain? Ryker sees Leon as their father figure, not some kind of lover. Leon also sees Ryker as his own son/child
 
 Vittorino x Ryker (8:11 AGAIN) Sigh... victim x abuser. 
+
+Ppl who use mental illnesses or disorders to FULLY EXCUSE THEIR BAD ACTIONS.
+
+Exes... (the ones who cheated on me, used me or any other stuff like that)
+
+Ex friends (same as exes, iwc in different cases)
+![baclje](https://github.com/user-attachments/assets/d7a4773a-3570-4b18-82d5-4c50fb5cc323)
+
+
