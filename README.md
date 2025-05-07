@@ -26,6 +26,11 @@ I like reading, drawing, painting, watching movies (thriller, horror etc)  and c
 ![5g791n](https://github.com/user-attachments/assets/b1d72ca2-de5e-4a17-8f8a-ac93b70a5c87) I'm Pansexual and Nonbinary !!(｡･∀･)ﾉﾞ![vaxhez](https://github.com/user-attachments/assets/3f155d2d-e8d1-48c4-8d6b-78037e5a5764)
 
 
-i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Maned wolves, foxes, snakes, doves, rabbits, cats and dogs!! \(@^0^@)/
+i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Maned wolves, foxes, snakes, doves, rabbits, swans, cats and dogs!! \(@^0^@)/
 
+If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what to say at times, but as we get close, the moe and more talkative i get!! (╹ڡ╹ )
+ 
+ 
+ ![wjltyo](https://github.com/user-attachments/assets/4759c6b9-764e-4848-b469-9d02d84df2c0) 
+![i0c7i1](https://github.com/user-attachments/assets/c5c56a9f-8f3d-4168-ab41-60c44b80ede1)
 
