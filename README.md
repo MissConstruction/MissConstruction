@@ -146,13 +146,9 @@ Mira / Queen of hearts
 
 Kyuma / king of clubs
 
-Arisu 
+Arisu
 
-Heiya
-
-Aguni
-
-Hatter
+Chota
 
 Dae-Ho
 
@@ -173,21 +169,11 @@ Duck guy
 ![IMG-3871](https://github.com/user-attachments/assets/c6603b2c-b4f0-4d4c-8e70-de98de24ad6d)
 Subspace
 
-Slingshot
-
 Daisuke
-
-Swansea
 
 Anya
 
 Pure Vanilla Cookie
-
-Eternal Sugar Cookie
-
-Shadow Milk Cookie
-
-Nutmeg Tiger Cookie
 
 Cream Ferret Cookie
 
