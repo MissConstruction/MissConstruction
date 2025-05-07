@@ -54,3 +54,9 @@ Basic DNI criteria.
 Nazis and supporters of Nazis
 
 Ppl who downplay ANY serious / problematic topics in general
+
+ANY kind of motherless jokes. Seriously, those really hurt me and i'll instantly block you.
+
+Zoophilles (ew.) 
+
+Ppl who make fun of SA or SH, neither of them are funny.
