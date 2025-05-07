@@ -35,7 +35,7 @@ i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Maned wolves, foxes, snakes, d
 If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what to say at times, but as we get close, the moe and more talkative i get!! I also get attached really easily, so i'm really sorry if i get annoying ! i REALLY love drawing / making skins for my friends!! i really love seeing them happy <3 i also ADORE making ocs together with oomfs LIKE HELL YEAH?????? I'LL INSTANTLY AGREE, NO NEED TO EVEN ASK!!! (╹ڡ╹ )
 
 
- I'm honestly really feeling unwell nowadays, because of a friendship problem, so i'll be upset most of the time （；´д｀）ゞ i TRULY miss the person, even if i was the one who left for my own reasons. I still feel REALLY guilty, and regret everything, but i know i can't make things back to the same (。﹏。*)
+ I'm honestly really feeling unwell nowadays, because of a friendship problem, so i'll be upset most of the time （；´д｀）ゞ i TRULY miss the person, even if i was the one who left for my own reasons. I still feel REALLY guilty, and regret everything, but i know i can't make things back to the same. He made my life better when i felt like sheit. I also know that i will NEVER get forgiven (。﹏。*)
 
  ![wjltyo](https://github.com/user-attachments/assets/4759c6b9-764e-4848-b469-9d02d84df2c0) 
 ![i0c7i1](https://github.com/user-attachments/assets/c5c56a9f-8f3d-4168-ab41-60c44b80ede1)
