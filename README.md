@@ -28,7 +28,7 @@ I like reading, drawing, painting, watching movies (thriller, horror etc)  and c
 
 i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Maned wolves, foxes, snakes, doves, rabbits, swans, cats and dogs!! \(@^0^@)/
 
-If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what to say at times, but as we get close, the moe and more talkative i get!! (╹ڡ╹ )
+If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what to say at times, but as we get close, the moe and more talkative i get!! I also get attached really easily, so i'm really sorry if i get annoying ! i REALLY love drawing / making skins for my friends!! i really love seeing them happy <3 i also ADORE making ocs together with oomfs LIKE HELL YEAH?????? I'LL INSTANTLY AGREE, NO NEED TO EVEN ASK!!! (╹ڡ╹ )
  
  
  ![wjltyo](https://github.com/user-attachments/assets/4759c6b9-764e-4848-b469-9d02d84df2c0) 
