@@ -8,7 +8,7 @@
  ![fq03rm](https://github.com/user-attachments/assets/a764106c-1368-4084-a2b6-d44726c33ce6)
 Always C+H freely !! ^^
 
-INFJ-T
+INFJ-T , ADHD , PTSD
 
  ![cwrlo8](https://github.com/user-attachments/assets/6c42fadc-2b8b-43c4-92d0-99ebf2654815)
 
@@ -105,6 +105,10 @@ Wednesday
 
 Slendytubbies
 
+DHMIS
+
+Mr. Hopp's Playhouse
+
 # PEOPLE IN THE FANDOMS ABOVE PLEASE INT. 
 
 Orison
@@ -128,6 +132,87 @@ Little Misfortune
 Dandy's World (FANDOM IWEC PLEASEEE) 
 
 
+I'M IN ALOT MORE, I JUST FORGOT THE NAMES..... GULPSSS
+
+
+![IMG-0583](https://github.com/user-attachments/assets/2185f6d4-7b31-45b8-93d8-6ea21caf2949)
+
+![IMG-0516](https://github.com/user-attachments/assets/af2957ae-81c4-4290-9504-d1bb2d5f5f6f)
+Comfort / Favourite characters !!
+
+Chishiya
+
+Mira / Queen of hearts
+
+Kyuma / king of clubs
+
+Arisu 
+
+Heiya
+
+Aguni
+
+Hatter
+
+Dae-Ho
+
+Sae-Byeok
+
+No-eul
+
+Nam-gyu
+
+Min-su
+
+Jun-ho
+
+Ji-Yeong
+
+Duck guy
+
+![IMG-3871](https://github.com/user-attachments/assets/c6603b2c-b4f0-4d4c-8e70-de98de24ad6d)
+Subspace
+
+Slingshot
+
+Daisuke
+
+Swansea
+
+Anya
+
+Pure Vanilla Cookie
+
+Eternal Sugar Cookie
+
+Shadow Milk Cookie
+
+Nutmeg Tiger Cookie
+
+Cream Ferret Cookie
+
+Sal Fisher
+
+Larry Johnson
+
+Leon
+
+Dante
+
+Vittorino
+
+BlueStar
+
+Zizzy
+
+Po
+
+Guardian / White Tubby
+
+Lazy to add the rest zzz
+
+
+![IMG_2355](https://github.com/user-attachments/assets/2b93f6c3-d2bc-48bf-b8b8-71e2bd8f2c4c)
 
 
 
