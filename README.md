@@ -105,6 +105,8 @@ Wednesday
 
 Slendytubbies
 
+Hetalia
+
 DHMIS
 
 Mr. Hopp's Playhouse
