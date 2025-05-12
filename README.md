@@ -229,4 +229,7 @@ You can call me my irl names, idm!!
 
 Johanna / Ji-Yeong !
 
+when it comes to arguements, i don't try defending myself, but i'll really get overprotective n mad if you insult any of my friends or anyone that i love.
+(trying to bring up my personal problems will prove that you're really trying to help yourself out of the thing.)
+
 THANK YOU FOR READING THIS WHOLE THING???? I REALLY APPRECIATE IT........ youre free to int w me anytime!! ^^
