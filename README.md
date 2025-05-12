@@ -1,4 +1,4 @@
-
+![68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d666c65757264656c6926636f6c6f723d393730303030267374796c653d666f722d7468652d6261646765266c6162656c3d76697369746f7273267374796c653d706c6173746963](https://github.com/user-attachments/assets/ea5a0b09-2303-4fde-b438-dc1d015535ae)
 ![90f75c8a42d627e5b53f1b8e00b3be03](https://github.com/user-attachments/assets/076dad30-1fa3-4d4a-ab39-da268db4fc32)
                                           
   . . . . . ╰──╮ ![7kef4i](https://github.com/user-attachments/assets/8fdae5ba-55d9-414b-b1f6-e2b0ad8c8641)
@@ -10,7 +10,26 @@ Always C+H freely !! ^^
 
 INFJ-T , ADHD , PTSD , BIPOLAR
 
- ![cwrlo8](https://github.com/user-attachments/assets/6c42fadc-2b8b-43c4-92d0-99ebf2654815)
+ ![cwrlo8](https://github.com/user-attachments/assets/6c42fadc-2b8b-43c4-92d0-99ebf2654815)  ![Uploading <svg xmlns="http://www.w3.org/2000/svg" width="91.1" height="18">
+    <linearGradient id="smooth" x2="0" y2="100%">
+        <stop offset="0"  stop-color="#fff" stop-opacity=".7"/>
+        <stop offset=".1" stop-color="#aaa" stop-opacity=".1"/>
+        <stop offset=".9" stop-color="#000" stop-opacity=".3"/>
+        <stop offset="1"  stop-color="#000" stop-opacity=".5"/>
+    </linearGradient>
+    <rect rx="4" width="91.1" height="18" fill="#555"/>
+    <rect rx="4" x="49.6" width="41.5" height="18" fill="#970000"/>
+    <rect x="49.6" width="4" height="18" fill="#970000"/>
+    <rect rx="4" width="91.1" height="18" fill="url(#smooth)"/>
+    <g fill="#fff" text-anchor="middle" font-family="DejaVu Sans,Verdana,Geneva,sans-serif" font-size="11">
+        <text x="25.8" y="13" fill="#010101" fill-opacity=".3">visitors</text>
+        <text x="25.8" y="12">visitors</text>
+        <text x="69.4" y="13" fill="#010101" fill-opacity=".3">2,635</text>
+        <text x="69.4" y="12">2,635</text>
+    </g>
+</svg>
+68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d666c65757264656c6926636f6c6f723d393730303030267374796c653d666f722d7468652d6261646765266c6162656c3d76697369746f7273267374796c653d706c6173746963.svg…]()
+
 
 
 ˏˋ°•*⁀➷ABOUT MEEE!!! 
