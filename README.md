@@ -8,7 +8,7 @@
  ![fq03rm](https://github.com/user-attachments/assets/a764106c-1368-4084-a2b6-d44726c33ce6)
 Always C+H freely !! ^^
 
-INFJ-T , ADHD , PTSD
+INFJ-T , ADHD , PTSD , BIPOLAR
 
  ![cwrlo8](https://github.com/user-attachments/assets/6c42fadc-2b8b-43c4-92d0-99ebf2654815)
 
