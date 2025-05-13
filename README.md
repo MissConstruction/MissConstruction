@@ -202,7 +202,7 @@ Lazy to add the rest zzz
 ♡₊˚ 🦢・₊✧ even MORE infos abt me 
 
 ![IMG_9153](https://github.com/user-attachments/assets/a5376e3c-5626-42f0-9070-79cedbbdf5b6)
-I love listenng to music. lelelelelle Mitski, Mother Mother, Rammstein, Jack Stauber, Laufey, Miss Construction, MSI (ok.. i don't support Jimmy ew) , TV Girl, Tyler the creator, Alex G, Yaelokre, Maebi, Lady Gaga, Guerilla Toss, The living Tombstone, Kate Bush, Melanie Martinez
+I love listenng to music. lelelelelle Mitski, Mother Mother, Rammstein, Jack Stauber, Laufey, Miss Construction, MSI , TV Girl, Tyler the creator, Alex G, Yaelokre, Maebi, Lady Gaga, Guerilla Toss, The living Tombstone, Kate Bush, Melanie Martinez
 
 ![IMG-3552](https://github.com/user-attachments/assets/950f5df8-ee1e-4e98-9e5a-7066ddf07789)
 
