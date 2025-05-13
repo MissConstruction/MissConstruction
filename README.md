@@ -235,4 +235,8 @@ Johanna / Ji-Yeong !
 when it comes to arguements, i don't try defending myself, but i'll really get overprotective n mad if you insult any of my friends or anyone that i love.
 (trying to bring up my personal problems will prove that you're really trying to help yourself out of the thing.)
 
+i get attached really easily (I DOMT KNOW IF I ALREADY WROTE THIS DOWN BUT ANYWAY??) i can get jealous too sometimes.. BIG SIGHH and i'm really sorry if it annoys youu!!
+
+My birthday is april 3rd!! 
+
 THANK YOU FOR READING THIS WHOLE THING???? I REALLY APPRECIATE IT........ youre free to int w me anytime!! ^^
