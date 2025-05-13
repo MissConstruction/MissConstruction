@@ -74,8 +74,9 @@ Ppl who use mental illnesses or disorders to FULLY EXCUSE THEIR BAD ACTIONS.
 
 Exes... (the ones who cheated on me, used me or any other stuff like that)
 
-Ex friends. I'm  tired of you all, and if i left you, i REALLY had a reason and all the rights to do so. i've got so enough of getting treated like bs. a few of you littelary left me ruined and made me an even worse person.
+Ex friends. I'm  tired of some of you, and if i left you, i REALLY had a reason and all the rights to do so. i've got so enough of getting treated like bs. a few of you littelary left me ruined and made me an even worse person.
 
+otherwise, ex friends can iwec if you didn't fo the things i said, i maybe will even forgive you.. OK TOOMUCH YAPPING ABOUZTTHIS
 
 ![baclje](https://github.com/user-attachments/assets/d7a4773a-3570-4b18-82d5-4c50fb5cc323)
 
