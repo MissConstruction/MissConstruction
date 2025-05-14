@@ -139,6 +139,12 @@ Dandy's World (FANDOM IWEC PLEASEEE)
 
 Dream Game
 
+Total Drama
+
+Happy Tree Friends
+
+Eddsworld
+
 
 I'M IN ALOT MORE, I JUST FORGOT THE NAMES..... GULPSSS
 
