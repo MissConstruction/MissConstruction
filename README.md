@@ -50,6 +50,7 @@ If you ever wanna vent to be, i'll warn you because i'm a terrible comforter. I'
 
 ![yjl68s](https://github.com/user-attachments/assets/dc4c7120-5265-4e93-aa2c-de76e07cd040)
 Basic DNI criteria.
+(https://basic-dni.crd.co/) 
 
 Nazis and supporters of Nazis
 
