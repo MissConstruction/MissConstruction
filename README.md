@@ -85,7 +85,7 @@ Ppl who romantize/normalize stalking and obsessive behaivor.
 
 THOSE kind of Niragi (AIB) fans. You're disgusting if you only like him because of what he did to Usagi TWICE. Otherwise it's ok nws, i like how a well written bad person that burnt gecko is (NOT INCLUDING WHAT HE DID TO USAGI.) 
 
-⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆ Fandoms !! ![subspace-subspace-phighting](https://github.com/user-attachments/assets/b0b69bc7-d8e1-470f-8d03-be541efda26c) 
+⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆ Interests !! ![subspace-subspace-phighting](https://github.com/user-attachments/assets/b0b69bc7-d8e1-470f-8d03-be541efda26c) 
 
 Alice in borderland
 
@@ -114,6 +114,12 @@ Slendytubbies
 Hetalia
 
 DHMIS
+
+Harry Potter
+
+Cassandra
+
+Miss Peregrine's home for peculiar children
 
 Mr. Hopp's Playhouse
 
