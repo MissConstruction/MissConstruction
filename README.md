@@ -107,6 +107,8 @@ Squid Game
 
 Wednesday
 
+All of us are dead
+
 Slendytubbies
 
 Hetalia
