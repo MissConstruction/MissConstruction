@@ -121,6 +121,10 @@ Mr. Hopp's Playhouse
 
 Orison
 
+Danganronpa
+
+fnaf
+
 Phighting
 
 Forsaken
@@ -247,5 +251,7 @@ when it comes to arguements, i don't try defending myself, but i'll really get o
 i get attached really easily (I DOMT KNOW IF I ALREADY WROTE THIS DOWN BUT ANYWAY??) i can get jealous too sometimes.. BIG SIGHH and i'm really sorry if it annoys youu!!
 
 My birthday is april 3rd!! 
+
+i love horror games and movies lelelelele (yes i'll always go first in horror games) 
 
 THANK YOU FOR READING THIS WHOLE THING???? I REALLY APPRECIATE IT........ youre free to int w me anytime!! ^^
