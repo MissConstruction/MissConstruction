@@ -123,7 +123,16 @@ Miss Peregrine's home for peculiar children
 
 Mr. Hopp's Playhouse
 
-# PEOPLE IN THE FANDOMS ABOVE PLEASE INT. 
+Murder cases
+
+History
+
+Geography
+
+Horror
+
+
+# PEOPLE W THE SAME INTERESTS ABOVE PLEASE INT!!
 
 Orison
 
