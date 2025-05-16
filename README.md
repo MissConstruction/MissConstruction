@@ -121,6 +121,8 @@ Cassandra
 
 Miss Peregrine's home for peculiar children
 
+Stranger Things
+
 Mr. Hopp's Playhouse
 
 Murder cases
