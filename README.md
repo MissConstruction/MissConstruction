@@ -168,6 +168,10 @@ Happy Tree Friends
 
 Eddsworld
 
+Poppy Playtime (fandom iwc, some of yáll r weird ) 
+
+Little Nightmare
+
 
 I'M IN ALOT MORE, I JUST FORGOT THE NAMES..... GULPSSS
 
