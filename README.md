@@ -172,7 +172,27 @@ Eddsworld
 
 Poppy Playtime (fandom iwc, some of yáll r weird ) 
 
-Little Nightmare
+Little Nightmares
+
+Steven Universe
+
+The amazing world of Gumball
+
+Unikitty
+
+Teenage Mutant Ninja Turtles (2012)
+
+Buddy daddies
+
+The Amazing Digutal Circus
+
+Garten of BanBan
+
+Fnac
+
+Miraculous Ladybug (idk man.. old interest)
+
+
 
 
 I'M IN ALOT MORE, I JUST FORGOT THE NAMES..... GULPSSS
