@@ -107,6 +107,8 @@ Squid Game
 
 Wednesday
 
+Regretevator
+
 All of us are dead
 
 Slendytubbies
