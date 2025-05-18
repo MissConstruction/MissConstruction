@@ -300,3 +300,7 @@ My birthday is april 3rd!!
 i love horror games and movies lelelelele (yes i'll always go first in horror games) 
 
 THANK YOU FOR READING THIS WHOLE THING???? I REALLY APPRECIATE IT........ youre free to int w me anytime!! ^^
+
+
+![Screenshot_20250518-171532_ibisPaint X](https://github.com/user-attachments/assets/18ad4793-b007-4c38-90d2-a39b2f51b57b)
+
