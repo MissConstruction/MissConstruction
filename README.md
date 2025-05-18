@@ -305,3 +305,8 @@ THANK YOU FOR READING THIS WHOLE THING???? I REALLY APPRECIATE IT........ youre 
 ![Screenshot_20250518-171532_ibisPaint X](https://github.com/user-attachments/assets/18ad4793-b007-4c38-90d2-a39b2f51b57b)
 
 leys intrlhck toes @Pleasant-Pearlescent
+
+
+![IMG_20250519_022251](https://github.com/user-attachments/assets/32ea31c6-c83c-4222-a229-f570aea172e3)
+
+IM CRYING yeah Ted's drswing..
