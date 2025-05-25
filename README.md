@@ -79,7 +79,7 @@ Ex friends. I'm  tired of some of you, and if i left you, i REALLY had a reason 
 
 otherwise, ex friends can iwec if you didn't fo the things i said, i maybe will even forgive you.. OK TOOMUCH YAPPING ABOUZTTHIS
 
-jany or chaz wtv name he uses. @homxual on gh. Be aware of this kid. he's 11, lied about his age to me so he could date me. he's also the reason why me and Ted had problems between us. He might spread false stuff about me 'grooming' him which is false. he's really immature, my 12 year old daughter figure is more mature than he is... even if he tried spreading false infos about me, i already have the right people on my side. he also faked his feelings to me, made my mental health worse. He forced me to be in a rs, too, kept asking me if i'm gonna be back with him after i broke up with him....
+jany or chaz wtv name he uses. @2ndlife on gh. Be aware of this kid. he's 11, lied about his age to me so he could date me. he's also the reason why me and Ted had problems between us. He might spread false stuff about me 'grooming' him which is false. he's really immature, my 12 year old daughter figure is more mature than he is... even if he tried spreading false infos about me, i already have the right people on my side. he also faked his feelings to me, made my mental health worse. He forced me to be in a rs, too, kept asking me if i'm gonna be back with him after i broke up with him....
 
 
 ![baclje](https://github.com/user-attachments/assets/d7a4773a-3570-4b18-82d5-4c50fb5cc323)
