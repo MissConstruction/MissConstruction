@@ -94,6 +94,8 @@ Alice in borderland
 
 8:11
 
+Outer banks
+
 Sally Face
 
 Tiny Bunny
@@ -218,6 +220,8 @@ Arisu
 
 Chota
 
+Jj
+
 Dae-Ho
 
 Sae-Byeok
@@ -231,6 +235,7 @@ Min-su
 Jun-ho
 
 ![IMG-3871](https://github.com/user-attachments/assets/c6603b2c-b4f0-4d4c-8e70-de98de24ad6d)
+
 Subspace
 
 Daisuke
