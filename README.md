@@ -32,7 +32,7 @@ i also misspell ALOT. It's almost always because i type TOO quickly, i'm sometim
 ![5g791n](https://github.com/user-attachments/assets/b1d72ca2-de5e-4a17-8f8a-ac93b70a5c87) I'm Pansexual and Nonbinary !!(｡･∀･)ﾉﾞ![vaxhez](https://github.com/user-attachments/assets/3f155d2d-e8d1-48c4-8d6b-78037e5a5764)
 
 
-i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Maned wolves, foxes, snakes, doves, rabbits, swans, cats and dogs!! \(@^0^@)/
+i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Caterpillars, Maned wolves, foxes, snakes, doves, rabbits, swans, cats and dogs!! \(@^0^@)/
 
 If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what to say at times, but as we get close, the moe and more talkative i get!! I also get attached really easily, so i'm really sorry if i get annoying ! i REALLY love drawing / making skins for my friends!! i really love seeing them happy <3 i also ADORE making ocs together with oomfs LIKE HELL YEAH?????? I'LL INSTANTLY AGREE, NO NEED TO EVEN ASK!!! (╹ڡ╹ )
 
@@ -209,6 +209,12 @@ I'M IN ALOT MORE, I JUST FORGOT THE NAMES..... GULPSSS
 
 ![IMG-0516](https://github.com/user-attachments/assets/af2957ae-81c4-4290-9504-d1bb2d5f5f6f)
 Comfort / Favourite characters !!
+
+Pilby
+
+Unpleasant Gradient
+
+NULL
 
 Chishiya
 
