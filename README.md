@@ -52,9 +52,10 @@ If you ever wanna vent to be, i'll warn you because i'm a terrible comforter. I'
 
 ──── ୨୧ ──── DNI list !!
 
-![phighting-subspace](https://github.com/user-attachments/assets/1f6fb7b2-72bb-43a2-adc8-870e8b4f36f9)
+![tumblr_0e6bc00fce212d738c7baaa8aedb8f01_7c2f48de_250](https://github.com/user-attachments/assets/b15aa99e-691c-400b-ae5c-739589204035)
 
-![yjl68s](https://github.com/user-attachments/assets/dc4c7120-5265-4e93-aa2c-de76e07cd040)
+
+![tumblr_116d336162074c1325ca8d47d82654a9_a1174164_75](https://github.com/user-attachments/assets/4e1278fa-9d96-425a-929e-68709a64da19)
 Basic DNI criteria.
 (https://basic-dni.crd.co/) 
 
@@ -68,7 +69,8 @@ Zoophilles (ew.)
 
 Ppl who make fun of SA or SH, neither of them are funny.
 
-![xv5l5o](https://github.com/user-attachments/assets/b72734c7-6c92-41b3-ab2d-e6732f23d14a)
+![tumblr_ee7646a2ffe6e7bf44e3b54ca1a776da_9693f347_75](https://github.com/user-attachments/assets/f73ce2c5-a3d1-4e12-ab43-7bb2edaa71b3)
+
 People who force their ships on people. 
 
 srsly DNI if you tell people to kts over ships. ( DW berryfunny, Christmasflower shippers yall are on thin ice.. i'm sorry but i've had terrible expriences with some of you) 
