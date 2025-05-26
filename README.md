@@ -2,26 +2,31 @@
 ![308d2f496951d2137c62ffcfc70ddc8f](https://github.com/user-attachments/assets/9887b915-ad44-467c-9dc0-cc13c01d9430)
 
                                           
-  . . . . . ╰──╮ ![7kef4i](https://github.com/user-attachments/assets/8fdae5ba-55d9-414b-b1f6-e2b0ad8c8641)
-  Kasper / Chishiya ![u1huo2](https://github.com/user-attachments/assets/7a3b7b87-bb28-4da6-8c80-e785834ba8f3)
- ╭──╯ . . . . .
+  . . . . . ╰──╮ ![tumblr_inline_msbvj6zNnM1rkldve540](https://github.com/user-attachments/assets/b6b2eed0-d03e-4aeb-be74-d063e47d5f75)
+Kasper / Chishiya ![vjahb9](https://github.com/user-attachments/assets/7c527643-18c9-4670-b5b6-b9d3eb7cdded) ╭──╯ . . . . .
 
- ![fq03rm](https://github.com/user-attachments/assets/a764106c-1368-4084-a2b6-d44726c33ce6)
+ ![tumblr_603b94c5da0e6f68b7b7c1aaf388c098_bf408c87_75](https://github.com/user-attachments/assets/4c35226f-b395-4e74-9c07-0ac84da71698)
+
 Always C+H freely !! ^^
+
 
 INFJ-T , ADHD , PTSD , BIPOLAR
 
- ![cwrlo8](https://github.com/user-attachments/assets/6c42fadc-2b8b-43c4-92d0-99ebf2654815)  
+   
 
+![tumblr_a0f2c2b031e828d3e1a6352308a6ceeb_38da593b_1280](https://github.com/user-attachments/assets/0515db35-49de-4181-b71b-607e10aad6fe)
 
 
 
 ˏˋ°•*⁀➷ABOUT MEEE!!! 
  
-![szoxht](https://github.com/user-attachments/assets/3b85cee9-5158-46c7-ac4c-cd7e525b1b75)  They / Them !!
+  ![tumblr_inline_p7mgkfF0g21qdlkyg_250](https://github.com/user-attachments/assets/da84b159-0122-46f0-9044-c12688a33502) They / Them !!
 
 
-![zpjx9v](https://github.com/user-attachments/assets/0e3897ad-d2e7-418c-b720-0af9d6392da6) ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ ALWAYS feel free to interact with me or c+h w me (even if i'm on dni or anything like that, i LOVE cuds)
+
+ALWAYS feel free to interact with me or c+h w me (even if i'm on dni or anything like that, i LOVE cuds)
+
+![tumblr_b7bcd732e53b6a893fa0e45ae15d98a5_4e31c4fe_75](https://github.com/user-attachments/assets/69360cee-9b5a-4ddf-b0de-28fa9de1f550)
 ╰┈➤ I also love talking alot, especially about my interests and ocs, LITTELARY, mention the game and i'm being a nerd about it. I ALSO LOVE LISTENING TO PPL TALK TO ME!!
 
 like hell yeah, i wanna know EVERYTHING you say!!
