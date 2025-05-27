@@ -332,3 +332,13 @@ leys intrlhck toes @Pleasant-Pearlescent
 ![IMG_20250519_022251](https://github.com/user-attachments/assets/32ea31c6-c83c-4222-a229-f570aea172e3)
 
 IM CRYING yeah Ted's drswing..
+
+(will make a straw for this) 
+My sketches! ;
+Dandy's world doodles i did after finishing my final exams ^_^
+![20250527_154100](https://github.com/user-attachments/assets/d4f52cdf-ca81-46d2-99fb-7f680f5cbb36) 
+
+My main oc/persona! :3 
+![20250527_154121](https://github.com/user-attachments/assets/23c91fc9-49a9-450f-8d8b-a53527cfcfdd)
+
+
