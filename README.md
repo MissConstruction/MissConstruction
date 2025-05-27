@@ -328,11 +328,6 @@ THANK YOU FOR READING THIS WHOLE THING???? I REALLY APPRECIATE IT........ youre 
 
 leys intrlhck toes @Pleasant-Pearlescent
 
-
-![IMG_20250519_022251](https://github.com/user-attachments/assets/32ea31c6-c83c-4222-a229-f570aea172e3)
-
-IM CRYING yeah Ted's drswing..
-
 (will make a straw for this) 
 My sketches! ;
 Dandy's world doodles i did after finishing my final exams ^_^
