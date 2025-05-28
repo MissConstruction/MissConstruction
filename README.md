@@ -1,5 +1,6 @@
 
-![308d2f496951d2137c62ffcfc70ddc8f](https://github.com/user-attachments/assets/9887b915-ad44-467c-9dc0-cc13c01d9430)
+![tumblr_30100d1c31368f883e0990f1a3774743_6457ec30_500](https://github.com/user-attachments/assets/e29615ad-07b3-4639-aaba-21de80e67a06)
+
 
                                           
   . . . . . ╰──╮ ![tumblr_inline_msbvj6zNnM1rkldve540](https://github.com/user-attachments/assets/b6b2eed0-d03e-4aeb-be74-d063e47d5f75)
@@ -20,7 +21,7 @@ INFJ-T , ADHD , PTSD , BIPOLAR
 
 ˏˋ°•*⁀➷ABOUT MEEE!!! 
  
-  ![tumblr_inline_p7mgkfF0g21qdlkyg_250](https://github.com/user-attachments/assets/da84b159-0122-46f0-9044-c12688a33502) They / Them !!
+   They / Them !!
 
 
 
@@ -43,8 +44,9 @@ i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Caterpillars, Maned wolves, fo
 If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what to say at times, but as we get close, the moe and more talkative i get!! I also get attached really easily, so i'm really sorry if i get annoying ! i REALLY love drawing / making skins for my friends!! i really love seeing them happy <3 i also ADORE making ocs together with oomfs LIKE HELL YEAH?????? I'LL INSTANTLY AGREE, NO NEED TO EVEN ASK!!! (╹ڡ╹ )
 
  
- ![wjltyo](https://github.com/user-attachments/assets/4759c6b9-764e-4848-b469-9d02d84df2c0) 
+
 ![i0c7i1](https://github.com/user-attachments/assets/c5c56a9f-8f3d-4168-ab41-60c44b80ede1)
+I'm Jj Maybank irl, trust
 
 ![IMG_0634](https://github.com/user-attachments/assets/423b9150-ec5a-4185-a3a0-62ebedace629)
 If you ever wanna vent to be, i'll warn you because i'm a terrible comforter. I'll still try my best comforting you though ^_^ Also, i'll honestly don't know how to comfort at all when it comes to family problems. (i haven't really exprienced any in my life, so i'll be really clueless on how to comfort by it, especially if it's father issues, i'm sorry （＞人＜；）
@@ -52,10 +54,7 @@ If you ever wanna vent to be, i'll warn you because i'm a terrible comforter. I'
 
 ──── ୨୧ ──── DNI list !!
 
-![tumblr_0e6bc00fce212d738c7baaa8aedb8f01_7c2f48de_250](https://github.com/user-attachments/assets/b15aa99e-691c-400b-ae5c-739589204035)
 
-
-![tumblr_116d336162074c1325ca8d47d82654a9_a1174164_75](https://github.com/user-attachments/assets/4e1278fa-9d96-425a-929e-68709a64da19)
 Basic DNI criteria.
 (https://basic-dni.crd.co/) 
 
@@ -96,7 +95,8 @@ Ppl who romantize/normalize stalking and obsessive behaivor.
 
 THOSE kind of Niragi (AIB) fans. You're disgusting if you only like him because of what he did to Usagi TWICE. Otherwise it's ok nws, i like how a well written bad person that burnt gecko is (NOT INCLUDING WHAT HE DID TO USAGI.) 
 
-⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆ Interests !! ![subspace-subspace-phighting](https://github.com/user-attachments/assets/b0b69bc7-d8e1-470f-8d03-be541efda26c) 
+⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆ Interests !!  ![tripped-jj-maybank](https://github.com/user-attachments/assets/6a3cd18e-02e6-4e73-8ae5-dfe094a4e4c2)
+
 
 Alice in borderland
 
