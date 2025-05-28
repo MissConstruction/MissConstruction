@@ -335,5 +335,5 @@ Dandy's world doodles i did after finishing my final exams ^_^
 
 My main oc/persona! :3 
 ![20250527_154121](https://github.com/user-attachments/assets/23c91fc9-49a9-450f-8d8b-a53527cfcfdd)
-
+(i changed their color palette, will put a colored drawinf of her soon ^,,^
 
