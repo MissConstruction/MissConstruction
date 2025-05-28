@@ -45,7 +45,8 @@ If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what 
 
  
 
-![i0c7i1](https://github.com/user-attachments/assets/c5c56a9f-8f3d-4168-ab41-60c44b80ede1)
+![82fba0d783a9e0e016a420a9bd40069c](https://github.com/user-attachments/assets/360e90ab-96b3-4c71-8588-e948db848e0b)
+
 I'm Jj Maybank irl, trust
 
 ![IMG_0634](https://github.com/user-attachments/assets/423b9150-ec5a-4185-a3a0-62ebedace629)
