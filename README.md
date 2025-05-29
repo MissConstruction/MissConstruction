@@ -131,6 +131,8 @@ Hetalia
 
 DHMIS
 
+Pretty Blood
+
 Harry Potter
 
 Cassandra
