@@ -110,6 +110,8 @@ Sally Face
 
 Tiny Bunny
 
+Wild Kratts
+
 Beastars
 
 Rachel's games (Deadplate, Rot in paradise etc)
