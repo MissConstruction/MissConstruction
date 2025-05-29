@@ -1,3 +1,4 @@
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
 ![tumblr_30100d1c31368f883e0990f1a3774743_6457ec30_500](https://github.com/user-attachments/assets/e29615ad-07b3-4639-aaba-21de80e67a06)
 
@@ -13,11 +14,11 @@ Always C+H freely !! ^^
 
 INFJ-T , ADHD , PTSD , BIPOLAR
 
-   
+︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 
-![tumblr_a0f2c2b031e828d3e1a6352308a6ceeb_38da593b_1280](https://github.com/user-attachments/assets/0515db35-49de-4181-b71b-607e10aad6fe)
+  
 
-
+︶⊹︶⏝︶︶⏝︶⊹︶⏝ ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ
 
 ˏˋ°•*⁀➷ABOUT MEEE!!! 
  
@@ -338,5 +339,5 @@ Dandy's world doodles i did after finishing my final exams ^_^
 
 My main oc/persona! :3 
 ![20250527_154121](https://github.com/user-attachments/assets/23c91fc9-49a9-450f-8d8b-a53527cfcfdd)
-(i changed their color palette, will put a colored drawinf of her soon ^,,^
+
 
