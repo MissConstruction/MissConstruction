@@ -333,6 +333,10 @@ My birthday is april 3rd!!
 
 i love horror games and movies lelelelele (yes i'll always go first in horror games) 
 
+i have severe problems which bother me alot, also stress
+
+ i overthink alot, so i'm really sorry if i'm annoying, i'm trying my best not to be, mostly i could be overthinking about not being cared about, not being anyone's favourite person, not being loved or being replaced by my most important friends. i'm really really sorry again, it just bothers me sometimes, yes i have a therapist who cares about me, and i'm getting the help i need.
+
 THANK YOU FOR READING THIS WHOLE THING???? I REALLY APPRECIATE IT........ youre free to int w me anytime!! ^^
 
 
