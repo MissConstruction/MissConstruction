@@ -76,6 +76,8 @@ Ppl who make fun of SA or SH, neither of them are funny.
 
 People who force their ships on people. 
 
+THOSE kind of pizzaburger shippers who compare their ship to other ones (Pizzadebt, Coinrush, pizzapunch etc) " pizza.... doesn't make sense! " nor does pizzaburger! Elliot hates 007n7 btw, comparing your ship to other ones make no sense! one of you even told a pizzapunch shipper (my friend)  to kts..? yeah, if you're a pizzaburger shipper then please iwec.(expect Ted, ily you monkey)  SOME of you are so fcking toxic for no absolute reason.
+
 srsly DNI if you tell people to kts over ships. ( DW berryfunny, Christmasflower shippers yall are on thin ice.. i'm sorry but i've had terrible expriences with some of you) 
 
 Ryker x Leon (8:11) shippers. Do i even have to explain? Ryker sees Leon as their father figure, not some kind of lover. Leon also sees Ryker as his own son/child
