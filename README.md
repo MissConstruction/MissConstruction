@@ -142,6 +142,10 @@ Hetalia
 
 DHMIS
 
+Wildcraft (i plqy evr since the gane got released 🤤) 
+
+Spirit
+
 Pretty Blood
 
 Popee the performer
