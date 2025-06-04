@@ -122,6 +122,8 @@ LPS (i hvae so many of them)
 
 Beastars
 
+Sweet Tooth
+
 Rachel's games (Deadplate, Rot in paradise etc)
 
 Warrior cats
