@@ -345,7 +345,10 @@ I usually keep my problems to myself, it's hard for me to open up since i have t
 I'm a really sensitive person, please do NOT make motherless jokes around me. It really triggers me :( 
 
 ![IMG_1678](https://github.com/user-attachments/assets/75d47950-6d1d-4afe-a00e-d0be91933cdf)
-You can call me my irl names, idm!!
+I love my boyfriend SOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO much, he's the most awesome and the love of my life  (p≧w≦q)
+
+
+You can call me my irl names!!
 
 Johanna / Ji-Yeong !
 
@@ -358,16 +361,13 @@ My birthday is april 3rd!!
 
 i love horror games and movies lelelelele (yes i'll always go first in horror games) 
 
-i have severe problems which bother me alot, also stress
-
- i overthink alot, so i'm really sorry if i'm annoying, i'm trying my best not to be, mostly i could be overthinking about not being cared about, not being anyone's favourite person, not being loved or being replaced by my most important friends. i'm really really sorry again, it just bothers me sometimes, yes i have a therapist who cares about me, and i'm getting the help i need.
 
 THANK YOU FOR READING THIS WHOLE THING???? I REALLY APPRECIATE IT........ youre free to int w me anytime!! ^^
 
 
 ![Screenshot_20250518-171532_ibisPaint X](https://github.com/user-attachments/assets/18ad4793-b007-4c38-90d2-a39b2f51b57b)
 
-leys intrlhck toes @Pleasant-Pearlescent
+leys intrlhck toes, my loev
 
 (will make a straw for this) 
 My sketches! ;
