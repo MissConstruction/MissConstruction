@@ -94,6 +94,7 @@ otherwise, ex friends can iwec if you didn't fo the things i said, i maybe will 
 
 Jany or whatever name he uses. NEVER fcking interact with me ever again. Did you really think it was a good idea to show love to a 16 yr old (me) as you're 11??? you're so fkcing immature. Seriously tried ruining me and Ted's frienship?? i will NEVER forgive what you did to him. you're the reason why we had problems. Let's not talk about how desparate you were to date me after i broke up with you. EVERY SINGLE DAY "when will we get together again?" and stuoid stuff like that. You hurt Ted so much SO MUCH and i'm really dissapointed in you. When i was yr age, i was pretendinf that i'm a proxy w the creepypaste things wzf.. if you ever try to sprrad misinformations about me or Ted, js know i have way more proof to prove that everything was your fault!! ^_^ So yeah, you can accuse me of 'grooming' or 'manipulating' you, but NONE of it is true. I know what kind of a person you are. you're so messed up oh my god, even Sandra is more mature than you are
 
+Also please do NOT flirt with me, i'm taken by my most wonderful boyfriend and i wouldn't like it if ppl flirted w me ^_^
 
 ![baclje](https://github.com/user-attachments/assets/d7a4773a-3570-4b18-82d5-4c50fb5cc323)
 
@@ -141,6 +142,12 @@ All of us are dead
 Slendytubbies
 
 Hetalia
+
+Cuphead
+
+Trevor Henderson
+
+Bendy and the ink machine
 
 DHMIS
 
