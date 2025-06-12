@@ -44,7 +44,34 @@ i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Caterpillars, Maned wolves, fo
 
 If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what to say at times, but as we get close, the moe and more talkative i get!! I also get attached really easily, so i'm really sorry if i get annoying ! i REALLY love drawing / making skins for my friends!! i really love seeing them happy <3 i also ADORE making ocs together with oomfs LIKE HELL YEAH?????? I'LL INSTANTLY AGREE, NO NEED TO EVEN ASK!!! (╹ڡ╹ )
 
- 
+ ────⋆ ☀︎ ⋆──── Comfort/fav ships ( a few ) 
+
+ ToxicHero
+ Azuretime
+ AleHeather
+ Wallmark
+ Skatergradient (call me weird i don't care) 
+ KieJJ
+ JohnSarah
+ Ryker x Accardi
+ Leon x Dante (...?)
+ 7n7Noli
+ Buildertaph
+ Buildermon
+ Pizzadept
+ Pizzapunch
+ Paycheck
+ Partybeetle
+ Pestkit (cross ship hell yeah)
+ Moonflower
+ ShadowVanilla
+ SilentSugar
+ Spive
+ MeloDraco
+ PinataBalloon
+
+ i have much more but i'm lazy to write them here
+
 
 ![82fba0d783a9e0e016a420a9bd40069c](https://github.com/user-attachments/assets/360e90ab-96b3-4c71-8588-e948db848e0b)
 
