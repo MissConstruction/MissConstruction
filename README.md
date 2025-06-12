@@ -47,28 +47,66 @@ If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what 
  ────⋆ ☀︎ ⋆──── Comfort/fav ships ( a few ) 
 
  ToxicHero
+ 
  Azuretime
+ 
  AleHeather
+ 
  Wallmark
+ 
  Skatergradient (call me weird i don't care) 
+ 
  KieJJ
+ 
  JohnSarah
+ 
  Ryker x Accardi
+
  Leon x Dante (...?)
+ 
  7n7Noli
+ 
  Buildertaph
+ 
  Buildermon
+ 
  Pizzadept
+
  Pizzapunch
- Paycheck
+ 
+ Paycheck (lelel) 
+ 
  Partybeetle
+
+ RingTaph
+
+ FleshLamp
+ 
  Pestkit (cross ship hell yeah)
+ 
  Moonflower
+
+ FossilBerry
+
+ HauntedBerry
+
+ BerryCookie
+
+ Christmas/BaubleCake
+ 
  ShadowVanilla
+ 
  SilentSugar
+ 
+ Gerita
+ 
  Spive
+ 
  MeloDraco
+ 
  PinataBalloon
+
+ Mafinoia
 
  i have much more but i'm lazy to write them here
 
