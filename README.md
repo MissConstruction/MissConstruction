@@ -186,6 +186,8 @@ Outer banks
 
 Sally Face
 
+Bendy and the ink machine
+
 Tiny Bunny
 
 Wild Kratts
@@ -221,8 +223,6 @@ Hetalia
 Cuphead
 
 Trevor Henderson
-
-Bendy and the ink machine
 
 DHMIS
 
