@@ -44,6 +44,8 @@ i ABSOLUTELY adore Seals, Ferrets, Snow leopards, Caterpillars, Maned wolves, fo
 
 If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what to say at times, but as we get close, the moe and more talkative i get!! I also get attached really easily, so i'm really sorry if i get annoying ! i REALLY love drawing / making skins for my friends!! i really love seeing them happy <3 i also ADORE making ocs together with oomfs LIKE HELL YEAH?????? I'LL INSTANTLY AGREE, NO NEED TO EVEN ASK!!! (╹ڡ╹ )
 
+I respect all ships unless it's problematic !! ^^ i'm also a yumeshipper... :P
+
  ────⋆ ☀︎ ⋆──── Comfort/fav ships ( a few ) 
 
  ToxicHero
@@ -77,6 +79,8 @@ If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what 
  Paycheck (lelel) 
  
  Partybeetle
+
+Poley x Lira (my piggy oc) 
 
  RingTaph
 
