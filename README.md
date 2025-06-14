@@ -46,17 +46,17 @@ If i'm quiet, it doesn't mean i'm bored of you/hate you, i just don't know what 
 
 I respect all ships unless it's problematic !! ^^ i'm also a yumeshipper... :P
 
- ────⋆ ☀︎ ⋆──── Comfort/fav ships ( a few ) 
-
- ToxicHero
+ ────⋆ ☀︎ ⋆──── Comfort/fav ships ( a few )
  
+ Skatergradient (most favourit) 
+ 
+ ToxicHero
+
  Azuretime
  
  AleHeather
  
  Wallmark
- 
- Skatergradient (call me weird i don't care) 
  
  KieJJ
  
