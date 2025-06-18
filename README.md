@@ -1,3 +1,4 @@
+# - hi updated tjis
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
 ![tumblr_30100d1c31368f883e0990f1a3774743_6457ec30_500](https://github.com/user-attachments/assets/e29615ad-07b3-4639-aaba-21de80e67a06)
@@ -23,8 +24,10 @@ INFJ-T , ADHD , PTSD , BIPOLAR , questioning/not believing one
 ˏˋ°•*⁀➷ABOUT MEEE!!! 
  
    They / Them !!
+   
+T + F / J + M
 
-
+- Ted / Mariel, i love you like a swan loves it's partner <3.
 
 ALWAYS feel free to interact or c+h me!! ^w^ i don't bite at all!! i'm glad to interact with anyone, though i have social anxiety
 
