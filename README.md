@@ -164,7 +164,7 @@ Exes...
 
 Ex friends. I'm  tired of some of you, and if i left you, i REALLY had a reason and all the rights to do so. i've got so enough of getting treated like bs. a few of you littelary left me ruined and made me an even worse person. in differemt cases, ex friends iwec
 
-Jany/Zane  or whatever name he uses.. i'm seriously dissapoimted in you, lying about your age to me just to date me. when i was your age, i pretended to be one of the proxiers from creepypasta ?? i also don't want to interact with you for ALOT of reasons. Still, i hope you're doing ok but don't date people that are way too plder than you, or just simply don't date untill you teach that age. also don't spread missinformatiom about me or Ted, thank you. (do not harass him or anything like that, it's just a warning to him, so pleade do NOT attack him because he's still just a kid.) 
+Jany/Zane  or whatever name he uses.. i'm seriously dissapoimted in you, lying about your age to me just to date me. when i was your age, i pretended to be one of the proxiers from creepypasta ?? i also don't want to interact with you for ALOT of reasons. Still, i hope you're doing ok but don't date people that are way too plder than you, or just simply don't date until you reach that age. also don't spread misinformatiom about me or Ted, we didn't do anything problematic/weird/bad. and again, be cateful on the internet. (do not attack/harass him or anything like that,i just wanted to state this, so please do NOT attack him. he's still just a kid, and has much more to learn.) 
 
 Also please do NOT flirt with me, i'm taken by my most wonderful boyfriend and i wouldn't be ok at all if ppl flirted w me even though i'm taken. ^_^
 
