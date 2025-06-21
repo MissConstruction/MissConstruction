@@ -127,8 +127,6 @@ Poley x Lira (my piggy oc)
 
 I'm Jj Maybank irl, trust me TRUST ME
 
-I'm 15-16 years old, so if you're under 14 please iwec. I wouldn't like if anyone faked their age, because i've already had situations like that (11 year olds fooling me by saying they're older, then dating me..) i don't wanna seem like i date WAY younger people than i am, so i ask you to please don't lie about your age to me, because i won't judge at all, i'm glad to be friends with anyone, but don't develop feelings for me, please. Yes, i have do have a friend under 14, but i see her as my daughter figure. So yeah, if you're under 14, i'll most likely see you as a sibling or child figure ^_^
-
 ![IMG_0634](https://github.com/user-attachments/assets/423b9150-ec5a-4185-a3a0-62ebedace629)
 If you ever want to vent to me, then go on, but please tell me first that you want to vent!! i'll warn though, you because i'm a TERRIBLE comforter. I'll still try my best comforting though ^_^ Also, i'll honestly don't know how to comfort at all when it comes to family problems. (i haven't really exprienced any, so i'll be really clueless on how to comfort by it, especially if it's father issues, i'm really really sorry （＞人＜；）
 
