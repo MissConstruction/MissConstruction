@@ -45,7 +45,7 @@ I love animals and bugs so much, any kind of animals, really. ^_^ My most favour
 
 If i'm quiet, it doesn't mean i'm bored of/hate you, i just don't know what to say sometimes, but as i get more comfortable around you, the more and more talkative i get!! I also get attached really easily, i REALLY love drawing / making skins for my friends!! i really love seeing them happy!! i also ADORE making ocs together with my friends LIKE HELL YEAH?????? I'LL INSTANTLY AGREE, NO NEED TO EVEN ASK!!! (╹ڡ╹ )
 
-I respect all ships unless it's problematic !! ^^ i'm also a yume/selfshipper... :P
+I respect all ships unless it's problematic !! ^^ i'm also an oc x canon shipper... :P
 
 we're a Subspace, Griefer and Unpleasant gradient, Noli, Pest fictkin/sys!! ^^
 
