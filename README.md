@@ -13,7 +13,7 @@ Kasper / Chishiya ![vjahb9](https://github.com/user-attachments/assets/7c527643-
 Always C+H freely !! ^^
 
 
-INFJ-T , ADHD , PTSD , BIPOLAR , SYS/FICTKIN?? (still questioning, yes, i do know the difference between the two.)  
+INFJ-T , ADHD , PTSD , BIPOLAR , SYS/FICTKIN?? (still questioning, yes, i do know the difference between the two, will edit when figured out!! )  
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 
