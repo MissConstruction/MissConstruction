@@ -13,7 +13,7 @@ Kasper / Chishiya ![vjahb9](https://github.com/user-attachments/assets/7c527643-
 Always C+H freely !! ^^
 
 
-INFJ-T , ADHD , PTSD , BIPOLAR , SYS/FICTKIN?? (still questioning, yes, i do know the difference between the two, will edit when figured out!! )  
+INFJ-T , ADHD , PTSD , BIPOLAR 
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 
@@ -47,7 +47,6 @@ If i'm quiet, it doesn't mean i'm bored of/hate you, i just don't know what to s
 
 I respect all ships unless it's problematic !! ^^ i'm also an oc x canon shipper... :P
 
-we're a Subspace, Griefer and Unpleasant gradient, Noli, Pest fictkin/sys!! ^^
 
 
  ────⋆ ☀︎ ⋆──── Comfort/fav ships ( a few )
