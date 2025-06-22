@@ -1,5 +1,6 @@
 # - hi updated tjis
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+BRO WHERE THE HELL DID THE JJ GIFS GO
 
 ![tumblr_30100d1c31368f883e0990f1a3774743_6457ec30_500](https://github.com/user-attachments/assets/e29615ad-07b3-4639-aaba-21de80e67a06)
 
