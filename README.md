@@ -1,4 +1,4 @@
-# - hi updated tjis
+# - remaking this all when i have motivation
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 BRO WHERE THE HELL DID THE JJ GIFS GO
 
