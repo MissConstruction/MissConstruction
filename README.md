@@ -1,4 +1,4 @@
-# Readme of shame
+# Wall of shame
 
 ![Screenshot_20250712-164110_Chrome](https://github.com/user-attachments/assets/6204826e-2272-4ebb-b15e-21a80dd8a3bc)
 
