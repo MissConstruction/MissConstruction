@@ -1,8 +1,9 @@
-# Wall of shame
+# ▀▄▀▄ Wall of shame ▄▀▄▀
 
 ![Screenshot_20250712-164110_Chrome](https://github.com/user-attachments/assets/6204826e-2272-4ebb-b15e-21a80dd8a3bc)
  ^
 their github
+〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎
 
 ![Screenshot_20250712-164205_Discord](https://github.com/user-attachments/assets/688a7348-4ccb-44f0-a18f-f9a7d3ce35bb)
 
